@@ -1,0 +1,4 @@
+In the name of Allah, the most Beneficent, the most Merciful  
+In this article we want to investigate whether the universe is eternal, that is, it has always been, or whether it was created like any other creature at any point in time.   
+Suppose we have a clock that we can go to the past and future by moving its hands. Now the question is, if we go back in time by moving the hands of this clock, will we reach the moment when we see the creation of the universe or not?   
+If we can observe at the moment of creation of the universe in the past, it means that the universe is also a creature and has no eternal nature. And vice-versa, it is also obvious that if we can not observe the moment of the creation of the universe, that is, no matter how far we go in the past, the universe still exists and we can not reach the point of its creation, then we can conclude that the universe is eternal.   
